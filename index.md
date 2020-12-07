@@ -1,3 +1,4 @@
-# Welcome to my blog
+# PenPointPoke
 
-I'm glad you are here. I plan to talk about ...
+Welcome to PenPointPoke!!!
+Here I'll talk about the conceptions in my mind and what I think about life.
